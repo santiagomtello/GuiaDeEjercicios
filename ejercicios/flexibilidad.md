@@ -15,3 +15,6 @@
     8-Se adapta a cualquier condición física
     9-Reduce el estrés
     10-Mayor conciencia y conexión cuerpo-mente
+
+**instrucciones**
+    Como sucede con cualquier deporte, lo recomendable es que empieces a practicar Pilates poco a poco. Empieza con sesiones cortas a diario, luego puedes espaciarlas más y reservar dos o tres días para este ejercicio. Una vez que ya tengas establecida una buena rutina, será suficiente con hacer 30 minutos en cada sesión.
